@@ -10,4 +10,4 @@
 ###Now, i want develop in it sphere.
 ###I, study English whith my thuter two times at week.
 ###I think,i have b1 of b2 level
-###Unfortunatly, i don't have expyrience in it, but i'll heve it whith yours help
+###Unfortunatly, i don't have expyrience in it, but i'll heve it with yours help
